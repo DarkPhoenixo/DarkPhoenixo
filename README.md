@@ -9,7 +9,7 @@
 
 - 🔭 I’m currently working on **Myself**
 
-- 👯 I’m looking to collaborate on **Call of duty**
+- 👯 I’m looking to collaborate on **Efootball**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
